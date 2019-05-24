@@ -2,13 +2,8 @@
 =========================================
 ## Career History
 ---
-**From the e-Activity, summarize at least two (2) arguments presented for and against granting Sandusky’s motion for a new criminal trial. Identify the most likely factors that you believe would support the judge’s decision to grant a new trial. Provide a rationale for your response.**
-
-Sandusky felt that the judges should grant him a new trial because he believed that the lawyers did not have enough time to prepare for the case. In addition, the statute of limitation for some charges had expired and the boys who posed accusation on him, had waited too long to report the abuse to police. One of the accusers testified during the trial and convicted Sandusky for abusing ten boys, some of whom came from Penn State Campus. Some of the factors that would support judge`s decision to grant a new trial are; erroneous rulings, improper use of hearsay testimony, and lack of sufficient evidence.
-
-**John, a married, law-abiding, father of two children is serving as a juror in a trial where a child had been murdered. From lecture 3, determine the significant impact that a juror from the described demographic could potentially have in the outcome of this particular criminal trial. Provide rationale in your response.**
-
-John, who is a father of two, has a lot of emotional investment, which has a significant impact on the case. Based on the fact that a child was murdered, John is more likely to have a bias judgement because he would try to imagine if the same situation occurred to him at a personal level. Since John is serving as the jury, the fact that a child was murdered will make him develop resistance from wanting to hear the innocence of the victim. As a result, he will need a strong evidence that will convince him of a different outcome.
+John **PHD** has been working in the supreme court for a few months now.
+We held an interview with him last week and the following were his remarks.
 
 The table below shows the types of courts John has been employed in the past:
 
